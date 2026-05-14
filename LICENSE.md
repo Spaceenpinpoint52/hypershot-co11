@@ -1,4 +1,4 @@
-#  
+#  hypershot smart Script is the best hypershot Script, featuring god mode and one-hit kill. Safe and powerful for all your needs.
 
 
 
